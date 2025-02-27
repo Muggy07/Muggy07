@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/2445d5a5-f57e-4d74-a1ad-fd8f6056ea4b)
+
 Hello! - Still figuring this out, clearly, but ig this is where intro stuff goes...
 
 Online wise I am Muggy, so y'know thats what to call me - unless you're a friend with a certain nickname for me!
