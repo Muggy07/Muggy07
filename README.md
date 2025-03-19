@@ -6,7 +6,7 @@ Online wise I am Muggy, so y'know thats what to call me - unless you're a friend
 
 As stated in my bio I play Pony Town, some have seen me around but I just made this thingy so ehh
 
-Anyways plss, PLS, do NOT interact if you're a proshipper - I don't agree with that stuff and would prefer not to be involved with anyone who does support it or indulges in it, ty!
+Anyways plss, PLS, do NOT interact if you're a proshipper - I don't agree with most of that stuff and would prefer not to be involved with anyone who indulges in the bad parts of it, it just makes me uncomfortable thats all.
 
 As far as Pony Town things go, I'm fine with all sorts of things aside from being covered or hidden - So talking, whispering, poking, cuddling, and all that is OK!
 
