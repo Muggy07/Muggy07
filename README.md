@@ -16,7 +16,7 @@ Thats sorta it tbh, but if you wanna find me on Ponytown I'm usually by the bake
 
 ~ Charaters I play as range from anything DC to anything Marvel rlly, I do make new characters daily tho so that may change!!
 
-(Plsss don't copy any of my ponies - You can take inspo, WITH PERMISSION! Also plseas take into consideration that I am 18 and am not comfortable having weird convos and or relationships with those younger than me!)
+(Plsss don't copy any of my ponies - You can take inspo, WITH PERMISSION! Also please take into consideration that I am 18 and am not comfortable having weird convos and or relationships with those younger than me!)
 
 ![image](https://github.com/user-attachments/assets/2445d5a5-f57e-4d74-a1ad-fd8f6056ea4b)
 
