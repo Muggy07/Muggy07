@@ -14,7 +14,7 @@ I'm not actually online much and when I am i'm most likely AFK (Meaning: Away/Af
 
 Thats sorta it tbh, but if you wanna find me on Ponytown I'm usually by the bakery!
 
-~ Charaters I play as range from anything DC to anything Marvel rlly, recently been playing Jedediah and a few Invincible characters!
+~ Charaters I play as range from anything DC to anything Marvel rlly, I do make new characters daily tho so that may change!!
 
 (Plsss don't copy any of my ponies - You can take inspo, WITH PERMISSION! Also plseas take into consideration that I am 18 and am not comfortable having weird convos and or relationships with those younger than me!)
 
