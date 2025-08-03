@@ -6,9 +6,9 @@ Hello! - I'm still figuring this out, but I suppose this is where intro stuff go
 
 ( As stated in my bio I play Pony Town, and as of right now I am currently in a lot of fandoms... )
 
-- PLS inform me if you're a proshipper BEFORE interacting, I don't have anything against you guys I just like to know - Thats all.
+  - PLS inform me of any triggers you might have BEFORE properly interacting with me, it's just so I may keep them in mind when chatting!
 
-As far as Pony Town things go, I'm fine with all sorts of things aside from being covered or copied - So talking, whispering, poking, cuddling, and all that is OK!
+As far as Pony Town things go, I'm fine with all sorts of things aside from being covered or copied - So talking, whispering, poking, cuddling, and all that is OK! (further dni's and so on are on my Strawpage, if you're interested!)
 
 - I'm not actually online much and when I am i'm most likely AFK (Meaning: Away/Afar from Keyboard, just means not here really)
 
