@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/62db68c3-2c38-4273-bdfd-100a6be2fdb5)
+![image](https://i.pinimg.com/736x/a1/3c/fa/a13cfae4471f1e08bb984958fa50b536.jpg)
 
 ![image](https://github.com/user-attachments/assets/2445d5a5-f57e-4d74-a1ad-fd8f6056ea4b)
 
@@ -22,4 +22,4 @@ Thats sorta it tbh, but if you wanna find me on Ponytown I'm usually by the bake
 
 ![image](https://github.com/user-attachments/assets/2445d5a5-f57e-4d74-a1ad-fd8f6056ea4b)
 
-![image](https://i.pinimg.com/736x/a1/3c/fa/a13cfae4471f1e08bb984958fa50b536.jpg)
+![image](https://github.com/user-attachments/assets/62db68c3-2c38-4273-bdfd-100a6be2fdb5)
