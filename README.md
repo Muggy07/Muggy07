@@ -1,5 +1,3 @@
-  ![image](https://i.pinimg.com/736x/a1/3c/fa/a13cfae4471f1e08bb984958fa50b536.jpg)
-
 ![image](https://github.com/user-attachments/assets/2445d5a5-f57e-4d74-a1ad-fd8f6056ea4b)
 
 Hello! - I'm still figuring this out, but I suppose this is where intro stuff goes...
