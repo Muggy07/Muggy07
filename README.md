@@ -20,4 +20,4 @@ Thats sorta it tbh, but if you wanna find me on Ponytown I'm usually by the bake
 
 ![image](https://github.com/user-attachments/assets/2445d5a5-f57e-4d74-a1ad-fd8f6056ea4b)
 
-<img src="https://i.pinimg.com/736x/8f/81/d4/8f81d48141ec884524b535f437d4c6ba.jpg" alt="Story pin image"/>
+![image](https://i.pinimg.com/736x/a1/3c/fa/a13cfae4471f1e08bb984958fa50b536.jpg)
