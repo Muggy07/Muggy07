@@ -4,7 +4,7 @@ Hello! - I'm still figuring this out, but I suppose this is where intro stuff go
 
 ~ Online wise I am Muggy, so that's what you can call me - UNLESS you're a friend with a certain nickname for me!
 
-( As stated in my bio I play Pony Town, and as of right now I am currently in a lot of fandoms... )
+( As stated in my bio and strawpage, I am 18 and I play Pony Town - as of right now I am currently in a lot of fandoms... )
 
   - PLS inform me of any triggers you might have BEFORE properly interacting with me, it's just so I may keep them in mind when chatting!
 
