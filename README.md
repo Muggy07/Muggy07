@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/62db68c3-2c38-4273-bdfd-100a6be2fdb5)
+
 ![image](https://github.com/user-attachments/assets/2445d5a5-f57e-4d74-a1ad-fd8f6056ea4b)
 
 Hello! - I'm still figuring this out, but I suppose this is where intro stuff goes...
